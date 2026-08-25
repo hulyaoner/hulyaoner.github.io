@@ -1,1 +1,0 @@
-# hulyaoner.github.io
